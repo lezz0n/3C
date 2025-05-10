@@ -1,2 +1,2 @@
 # 3C
-3C gamimng
+3C gaming
